@@ -1,7 +1,5 @@
-### Hi there 👋
+### Assalamualaikum, hai semua 👋
 
-<!--
-**nabilahchaniago/nabilahchaniago** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Perkenalkan nama saya **Mar Atun Nabilah Chaniago**.\
 
